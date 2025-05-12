@@ -41,3 +41,12 @@
 ![image](https://github.com/user-attachments/assets/dbbb126a-69d0-4fef-a570-fbea21d6444f)
 ![image](https://github.com/user-attachments/assets/1ab7d7de-c008-4a9d-a29a-82482c7a35d8)
 # might add more to this later, not sure...
+# HERES SOME OF MY ART LOL
+![image](https://github.com/user-attachments/assets/d109897a-2ead-4a4f-adb0-7011feb9993d)
+![image](https://github.com/user-attachments/assets/71834242-a8c5-4564-991b-2144bd5a976d)
+![image](https://github.com/user-attachments/assets/e73cfe18-5600-4019-8e0f-93b1a293b7c0)
+![image](https://github.com/user-attachments/assets/8dd22f36-d85a-4d42-95b6-e916518cb035)
+![image](https://github.com/user-attachments/assets/6c32c034-e3aa-4e83-b664-ebc668d7cc94)
+![image](https://github.com/user-attachments/assets/1a58ab77-672a-43cc-bbf9-ddf990bcacaa)
+# WOW! Don't you just wanna be my friend after seeing that? I know I do!
+
