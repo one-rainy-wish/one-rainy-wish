@@ -1,16 +1,43 @@
-## Hi there 👋
 
-<!--
-**one-rainy-wish/one-rainy-wish** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## THROWS UP ALL OF THESE
+![gif](https://github.com/user-attachments/assets/66984ad2-b3e3-4060-9d5e-5b9b728aed85)
+![image](https://github.com/user-attachments/assets/ec392dbe-1a5f-4373-a222-fcae0f3a35b9)
+![image](https://github.com/user-attachments/assets/9ca386fd-ae70-42c0-b68f-543a11afad64)
+![image](https://github.com/user-attachments/assets/d663d2e7-7ac9-4a0b-bd82-d16b7de70961)
+![image](https://github.com/user-attachments/assets/05451c34-e3f5-4dc3-9e42-ef1c13d1cbcc)
+![image](https://github.com/user-attachments/assets/d2f7a240-9a51-4561-97fe-100a38c0a307)
+![image](https://github.com/user-attachments/assets/78682d2c-885a-460e-aa25-d28500144635)
+![image](https://github.com/user-attachments/assets/0299d8d2-3153-4532-9700-394b95810c74)
+![image](https://github.com/user-attachments/assets/84422a95-63dc-4d3f-8dbd-3cd2d90fb68c)
+![image](https://github.com/user-attachments/assets/9a3f3ef0-7566-4f75-9896-966099a797da)
+![image](https://github.com/user-attachments/assets/32dddf4b-75f4-4611-a9bf-cf406700789d)
+![image](https://github.com/user-attachments/assets/51a07306-4740-43a5-a621-942e30510868)
+![image](https://github.com/user-attachments/assets/4651aeb5-c033-4660-a41a-850dbe0d3876)
+![image](https://github.com/user-attachments/assets/c69f6054-9092-41cd-a888-6de43c5dcc58)
+![image](https://github.com/user-attachments/assets/a709fb55-6b8b-4e0f-a914-7b2c371bca84)
+![i!mage](https://github.com/user-attachments/assets/19296ff0-bd26-41e7-a14d-5a7b97ebc8bb)
+![image](https://github.com/user-attachments/assets/d0437175-9dbd-475e-a554-0d67981fdddc)
+![image](https://github.com/user-attachments/assets/f0c2d30e-4827-40ad-9505-d9e80d9f64c1)
+![image](https://github.com/user-attachments/assets/134ee031-5b67-4acf-9918-b88ee07d00fb)
+![image](https://github.com/user-attachments/assets/0e94a439-ccfe-4368-968b-ff212a1aaf35)
+![image](https://github.com/user-attachments/assets/ca76aeef-8821-48b7-816b-6e4121455cd6)
+![image](https://github.com/user-attachments/assets/4fafb3ba-825b-400a-97f0-c894a1b0fe0c)
+![image](https://github.com/user-attachments/assets/b0288a7a-3709-4be4-b183-1c2999b69667)
+![image](https://github.com/user-attachments/assets/79c8660b-9f2e-4525-908d-73494f3fcbdb)
+![image](https://github.com/user-attachments/assets/a7f8cb85-343f-4d78-9860-639d1603fb58)
+![image](https://github.com/user-attachments/assets/6dcd27d5-25da-4ecb-9b85-043818e86daa)
+![image](https://github.com/user-attachments/assets/ca1be522-2815-4055-851c-2f1f98cda508)
+![image](https://github.com/user-attachments/assets/1f40762e-a3fd-406a-9d46-5095686437ff)
+![image](https://github.com/user-attachments/assets/49cbe25d-21ba-479e-b743-1a6a51df3d1f)
+![image](https://github.com/user-attachments/assets/f0c729ab-76cd-4155-8a50-f8b7d2a01bf6)
+![image](https://github.com/user-attachments/assets/116bb458-de2c-467c-84f8-b0fc09072883)
+![image](https://github.com/user-attachments/assets/74c0916b-2778-478b-b8a9-0521a7b9fde3)
+![image](https://github.com/user-attachments/assets/23aef098-7a33-4642-bf98-e3b5e3d2c5ce)
+![image](https://github.com/user-attachments/assets/441b453b-cd29-40d8-b550-a04674c4727d)
+![image](https://github.com/user-attachments/assets/607080ab-46f0-46bb-8e06-5b9c4c532c64)
+![image](https://github.com/user-attachments/assets/2da1e461-b8bf-4580-b30e-bda39c94aeed)
+![image](https://github.com/user-attachments/assets/dbbb126a-69d0-4fef-a570-fbea21d6444f)
+![image](https://github.com/user-attachments/assets/1ab7d7de-c008-4a9d-a29a-82482c7a35d8)
+# might add more to this later, not sure...
