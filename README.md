@@ -1,6 +1,6 @@
-![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: PEOPLE UNDER 14, STOP LYING ABOUT YOUR AGE OH MY GODDDD!!! Systems, especifically if you are a minor or endo or whatever. "IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that ![image](https://github.com/user-attachments/assets/73cd5ac9-d97e-4b92-a2c6-1c7386087fc3) OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
+![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: People under 14 unless a friend, Systems, especifically if you are a minor or endo or whatever. "IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that ![image](https://github.com/user-attachments/assets/73cd5ac9-d97e-4b92-a2c6-1c7386087fc3) OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
 
-## DNI MYNSU. IF YOU KNOW YOU KNOW. DONT COME BY MY HOUSE, DONT CALL ME. GET LOST PAL!!!!
+
 
 ## ![image](https://github.com/user-attachments/assets/c2bb89d8-2a2a-483e-9a36-de7d6714cefe) THROWS UP ALL OF THESE ![image](https://github.com/user-attachments/assets/5c8ce087-a8d0-45ff-9f8a-5b4231fa930e)
 
@@ -122,6 +122,7 @@
 ![image](https://github.com/user-attachments/assets/1ab7d7de-c008-4a9d-a29a-82482c7a35d8)
 # might add more to this later, not sure...
 # HERES SOME OF MY ART LOL, ENJOY THE ART GALLERY
+
 ![image](https://github.com/user-attachments/assets/d109897a-2ead-4a4f-adb0-7011feb9993d)
 ![image](https://github.com/user-attachments/assets/71834242-a8c5-4564-991b-2144bd5a976d)
 ![image](https://github.com/user-attachments/assets/e73cfe18-5600-4019-8e0f-93b1a293b7c0)
