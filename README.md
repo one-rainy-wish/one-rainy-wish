@@ -1,5 +1,7 @@
 ![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: People under 14 unless a friend, Systems, especifically if you are a minor or endo or whatever. "IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that ![image](https://github.com/user-attachments/assets/73cd5ac9-d97e-4b92-a2c6-1c7386087fc3) OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
 
+I love my girlfriend a lot fun fact
+
 
 
 ## ![image](https://github.com/user-attachments/assets/c2bb89d8-2a2a-483e-9a36-de7d6714cefe) THROWS UP ALL OF THESE ![image](https://github.com/user-attachments/assets/5c8ce087-a8d0-45ff-9f8a-5b4231fa930e)
