@@ -1,5 +1,5 @@
-![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: People under 14 unless a friend, 
-"IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that ![image](https://github.com/user-attachments/assets/73cd5ac9-d97e-4b92-a2c6-1c7386087fc3) OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/87717651-a4cc-4608-b04c-7eddb3f3c3d0" />  DNI: People under 14 unless a friend, 
+"IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5c5414b8-2923-425e-afd1-baa99d9bffe1" /> OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
 
 
 
