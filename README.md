@@ -1,4 +1,4 @@
-![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: People under 14 unless a friend, 
+,./![image](https://github.com/user-attachments/assets/1e9011e4-4378-48fe-9d8a-31846f86dd86) DNI: People under 14 unless a friend, 
 "IRLS", Fictokins, people with delusional attachments. I have dealt with delusions in the past and do not feel comfortable feeding into people's delusions as I know it is harmful to be enabled that way. Proshippers, specifically illegal ships, stay away vro. basic dni obviously like if you have to wonder, you probably are included in that ![image](https://github.com/user-attachments/assets/73cd5ac9-d97e-4b92-a2c6-1c7386087fc3) OKAY THATS IT FOR SERIOUS STUFF YALL PROLLY WONT RESPECT IT ANYWAY WHATEVER
 
 
@@ -23,9 +23,13 @@
 ![image](https://github.com/user-attachments/assets/bdec8466-e9ca-4adb-a947-f06e617a632b)
 ![image](https://github.com/user-attachments/assets/f06b0a60-fdc8-411e-a953-4d392771870a)
 ![image](https://github.com/user-attachments/assets/250a96d4-571e-4422-907e-b7bcfd86a030)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/67b36036-3631-485e-a5e8-db70abe748e2" />
+
 ![image](https://github.com/user-attachments/assets/9a3a0612-15cd-49c0-93b7-0759bdf9b3ff)
 ![image](https://github.com/user-attachments/assets/96a20392-d957-402f-919a-243064e4fc4d)
 ![image](https://github.com/user-attachments/assets/ebc8f741-75ea-40c2-ab94-4f1ebc5f8b4b)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/4af213f4-25ce-4422-a520-8832036628c1" />
+
 ![image](https://github.com/user-attachments/assets/4e1569ce-3deb-4025-8a91-4f8badb2d929)
 ![image](https://github.com/user-attachments/assets/275ba8bd-fd74-4803-a18e-8bf2d3bd69e6)
 ![image](https://github.com/user-attachments/assets/a07c58a7-f798-4893-96d4-f8995ee9d5ef)
@@ -35,6 +39,9 @@
 ![image](https://github.com/user-attachments/assets/1dbea4b4-adb8-4d43-962f-370657366d1a)
 ![image](https://github.com/user-attachments/assets/c7e8b165-db69-4840-9663-b29435a02855)
 ![image](https://github.com/user-attachments/assets/1521ac7d-8f2a-4806-bc90-40748dd9efa4)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/a11991bf-a184-4202-9a95-afd37c5c35db" />
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/11c7609e-41a1-48e7-aadc-743f9b7453de" />
+
 ![image](https://github.com/user-attachments/assets/2df4e83d-bb6d-4e03-ba41-4f22a956a8bb)
 ![image](https://github.com/user-attachments/assets/db2da803-b406-4c53-9e38-4a2d4debfa47)
 ![image](https://github.com/user-attachments/assets/193995d6-e66f-42ed-9897-acf99b53c3d0)
@@ -47,6 +54,9 @@
 ![image](https://github.com/user-attachments/assets/fe2011fe-574d-48cd-8a20-8c8ed93d732a)
 ![image](https://github.com/user-attachments/assets/56dfb607-b691-4ea4-bc11-aee365e6d4b0)
 ![image](https://github.com/user-attachments/assets/9d0e1e3c-030f-4dd9-8da3-dfc8dfca95f2)
+<img width="99" height="57" alt="image" src="https://github.com/user-attachments/assets/d80027ea-6f9c-4f80-8dd1-25ab8c22c29e" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/16a3e4db-1fe1-499c-a87a-654e2e222d32" />
+
 ![image](https://github.com/user-attachments/assets/9014fe4f-ee46-43d8-822d-838a29249ccd)
 ![image](https://github.com/user-attachments/assets/9aa99d47-5163-4a28-a9da-6ac05cd029da)
 ![image](https://github.com/user-attachments/assets/d38303a1-7936-44cd-8ee0-bf1bba1e8705)
@@ -61,6 +71,9 @@
 ![image](https://github.com/user-attachments/assets/f8d6fb1c-8427-42a7-a3ce-da4d2bb797c6)
 ![image](https://github.com/user-attachments/assets/8d20cbf7-3f74-4383-8811-bcfe1e10ed86)
 ![image](https://github.com/user-attachments/assets/c3860965-354d-46bb-ab8e-b2d2c349ecc1)
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/69ec9018-972e-416d-8619-df3dc05cf518" />
+<img width="99" height="56" alt="image" src="https://github.com/user-attachments/assets/7f38d651-6e42-44d4-8bf8-9815c3c2c189" />
+
 ![image](https://github.com/user-attachments/assets/cdc4ea93-aa81-4562-9d4a-ea0c304d0329)
 ![image](https://github.com/user-attachments/assets/b4b361dd-28ec-42b2-9725-54b65dcc4517)
 ![image](https://github.com/user-attachments/assets/1370b09d-330e-479e-8a16-ca4e586deb3d)
