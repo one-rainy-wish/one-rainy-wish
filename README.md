@@ -5,7 +5,8 @@
 
 
 
-## ![image](https://github.com/user-attachments/assets/c2bb89d8-2a2a-483e-9a36-de7d6714cefe) THROWS UP ALL OF THESE ![image](https://github.com/user-attachments/assets/5c8ce087-a8d0-45ff-9f8a-5b4231fa930e)
+## THROWS UP ALL OF THESE
+
 
 ![gif](https://github.com/user-attachments/assets/66984ad2-b3e3-4060-9d5e-5b9b728aed85)
 ![image](https://github.com/user-attachments/assets/ec392dbe-1a5f-4373-a222-fcae0f3a35b9)
@@ -119,17 +120,7 @@
 ![image](https://github.com/user-attachments/assets/dbbb126a-69d0-4fef-a570-fbea21d6444f)
 ![image](https://github.com/user-attachments/assets/1ab7d7de-c008-4a9d-a29a-82482c7a35d8)
 # might add more to this later, not sure...
-# HERES SOME OF MY ART LOL, ENJOY THE ART GALLERY
 
-![image](https://github.com/user-attachments/assets/d109897a-2ead-4a4f-adb0-7011feb9993d)
-![image](https://github.com/user-attachments/assets/71834242-a8c5-4564-991b-2144bd5a976d)
-![image](https://github.com/user-attachments/assets/e73cfe18-5600-4019-8e0f-93b1a293b7c0)
-![image](https://github.com/user-attachments/assets/8dd22f36-d85a-4d42-95b6-e916518cb035)
-![image](https://github.com/user-attachments/assets/6c32c034-e3aa-4e83-b664-ebc668d7cc94)
-![image](https://github.com/user-attachments/assets/e6ac9f25-eb2b-4897-8c93-4552b838fedf)
-![image](https://github.com/user-attachments/assets/c42a2278-ae64-4433-9b9b-8c32c2a0bf46)
-![image](https://github.com/user-attachments/assets/6467b72a-9783-4502-8faa-23b3d534ea0e)
-![image](https://github.com/user-attachments/assets/86134f4b-77a7-481c-841a-557b38cb18bc)
-![image](https://github.com/user-attachments/assets/1a58ab77-672a-43cc-bbf9-ddf990bcacaa)
+
 # WOW! Don't you just wanna be my friend after seeing that? I know I do!
 
