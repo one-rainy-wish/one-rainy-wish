@@ -7,7 +7,8 @@
 
 
 
-## THROWS UP ALL OF THESE
+## THIS IS MESSY AND OUTDATED, TO SEE A BETTER ABOUT ME AND COLLECTION OF STAMPS/BLINKIES, CHECK OUT MY STRAWPAGE, TY! 
+https://poopypacker.straw.page/home
 
 
 ![gif](https://github.com/user-attachments/assets/66984ad2-b3e3-4060-9d5e-5b9b728aed85)
@@ -138,7 +139,7 @@
 ![image](https://github.com/user-attachments/assets/2da1e461-b8bf-4580-b30e-bda39c94aeed)
 ![image](https://github.com/user-attachments/assets/dbbb126a-69d0-4fef-a570-fbea21d6444f)
 ![image](https://github.com/user-attachments/assets/1ab7d7de-c008-4a9d-a29a-82482c7a35d8)
-# might add more to this later, not sure...
+
 
 
 # WOW! Don't you just wanna be my friend after seeing that? I know I do!
