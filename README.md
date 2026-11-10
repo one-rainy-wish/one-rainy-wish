@@ -10,7 +10,9 @@
 ## THROWS UP ALL OF THESE
 
 
-https://y2k.neocities.org/stamps2/RGd9OKc.jpg
+<img width="97" height="56" alt="image" src="https://github.com/user-attachments/assets/6870692e-7ecc-42a6-9111-9b87fd33080c" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/48e547b1-74b2-4009-97f0-8ecb869b28f1" />
+<img width="101" height="57" alt="image" src="https://github.com/user-attachments/assets/802e61ba-1886-416d-b9f2-4eb4af50adec" />
 ![gif](https://github.com/user-attachments/assets/66984ad2-b3e3-4060-9d5e-5b9b728aed85)
 ![image](https://github.com/user-attachments/assets/ec392dbe-1a5f-4373-a222-fcae0f3a35b9)
 ![image](https://github.com/user-attachments/assets/f59cf9d4-9df3-4332-9346-7bad77ab4663)
