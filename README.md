@@ -1,4 +1,6 @@
 ## SIGN MY ATABOOK IN MY BIO PLZPLZPLZPLZ.
+
+And if ur gonna hide me cause of anything, at least let me know why first goddamn...im nosy and wanna know
  
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/87717651-a4cc-4608-b04c-7eddb3f3c3d0" />  DNI: People under 15, everyone is welcome to interact, but I do not want to be friends or mutuals with anyone under 15!! It is inappropriate, if you are under 15 and adults are friends with you, please do not interact with them as it isn't safe and they're in the wrong!! basic dni obviously like if you have to wonder, you probably are included in that. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/87717651-a4cc-4608-b04c-7eddb3f3c3d0" />
 
